@@ -7,7 +7,7 @@
 - 👯 I’m open to collaborating on **cross-border marketing, brand content, and overseas market expansion projects**.
 - 🤔 I’m interested in how **psychology and structured narratives** influence user engagement and conversion.
 - 💬 Ask me about **overseas social media operations, independent website content, product launches, and international exhibitions**.
-- 📫 How to reach me: **samanthayip1900@gmail.com**
+- 📫 How to reach me: **samanthayip1999@gmail.com**
 - 😄 Pronouns: **she/her**
 - ⚡ Fun fact: **a long-term background in music and dance, shaping my sense of rhythm, structure, and aesthetics in content work**.
 
