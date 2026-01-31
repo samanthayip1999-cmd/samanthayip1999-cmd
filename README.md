@@ -1,16 +1,15 @@
 ## Hi there 👋
 
-<!--
-**samanthayip1999-cmd/samanthayip1999-cmd** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+✨ Overseas Marketing · Content Operations · Cross-Border Growth ✨
 
-Here are some ideas to get you started:
+- 🔭 I’m currently working on **overseas marketing operations**, focusing on **content-driven growth and brand communication**.
+- 🌱 I’m currently learning more about **global market research, platform-based content strategies, and AI-assisted creative workflows**.
+- 👯 I’m open to collaborating on **cross-border marketing, brand content, and overseas market expansion projects**.
+- 🤔 I’m interested in how **psychology and structured narratives** influence user engagement and conversion.
+- 💬 Ask me about **overseas social media operations, independent website content, product launches, and international exhibitions**.
+- 📫 How to reach me: **samanthayip1900@gmail.com**
+- 😄 Pronouns: **she/her**
+- ⚡ Fun fact: **a long-term background in music and dance, shaping my sense of rhythm, structure, and aesthetics in content work**.
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+# Readme
+Overseas marketing operator focused on content-driven growth, with experience across UK & US markets and a psychology background.
